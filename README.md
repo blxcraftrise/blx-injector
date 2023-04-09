@@ -1,1 +1,4 @@
-# blx-injector
+# blx-injector BLX İnjector v2.1 Available!
+
+Merhaba! İNDİRMEDEN ÖNCE ANTİVİRÜSÜ DEVRE DIŞI BIRAKIP YÖNETİCİ OLARAK ÇALIŞTIRIR İSENİZ DAHA SAĞLIKLI ÇALIŞIR. İyi Oyunlar! ( ÖZELLİKLE YÖNETİCİ OLARAK ÇALIŞTIRMANIZ ÖNERİLİR. )
+
